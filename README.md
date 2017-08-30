@@ -1,0 +1,1 @@
+skeleton screen of mobile
